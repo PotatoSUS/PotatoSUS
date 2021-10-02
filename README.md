@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### Eu gosto de machos
 <!--
 **PotatoSUS/PotatoSUS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
